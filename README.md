@@ -6,7 +6,8 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 Lady day  goday00  love it
-call to  me
+call to  me learn
+
 <!---
 hunterone1989/hunterone1989 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
